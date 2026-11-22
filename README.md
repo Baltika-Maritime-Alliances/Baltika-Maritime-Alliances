@@ -24,4 +24,5 @@ Complex and long musicals once a year, fun events, battleships and much more for
 
 
  Fair Winds and Following Seas, Sailor.
- ![visitors](https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=SeaCreatures&left_color=%232f2e94&right_color=%234b70a0)
+ 
+ ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FBaltika-Maritime-Alliances%2FBaltika-Maritime-Alliances%2Fedit%2Fmain%2FREADME.md&label=Sea%20creatures%20peeking&labelColor=%23263759&countColor=%230e7490&labelStyle=lower)
