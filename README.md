@@ -3,7 +3,7 @@
 ##                         `Royal Navy ･ﾟ Military Based`
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏ 
-𓆝 𓆟 𓆞 𓆝 𓆟     𓆝 𓆟 𓆞 𓆝 𓆟     𓆝 𓆟 𓆞 𓆝 𓆟     𓆝 𓆟 𓆞 𓆝 𓆟     𓆝 𓆟 
+
 
 Another Sailor coming along I see. Welcome aboard. 
 
@@ -14,7 +14,7 @@ Engineered as a bespoke flagship to redefine what modern groups can achieve, we 
 
 Complex and long musicals once a year, fun events, battleships and much more for you to explore both in and out of the server.
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏ 
+
 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟
 
 
