@@ -24,3 +24,4 @@ Complex and long musicals once a year, fun events, battleships and much more for
 
 
  Fair Winds and Following Seas, Sailor.
+ ![visitors](https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=SeaCreatures&left_color=%232f2e94&right_color=%234b70a0)
