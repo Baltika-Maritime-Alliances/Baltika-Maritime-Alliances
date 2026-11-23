@@ -18,11 +18,10 @@ Complex and long musicals once a year, fun events, battleships and much more for
 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟
 
 
-
-
-![Logo](https://cdn.phototourl.com/anon/2026-11-22-d5ae5af8-762d-403c-838f-cd8a129ea82a.gif)
-
-
  Fair Winds and Following Seas, Sailor.
  
  ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FBaltika-Maritime-Alliances%2FBaltika-Maritime-Alliances%2Fedit%2Fmain%2FREADME.md&label=Sea%20creatures%20peeking&labelColor=%23263759&countColor=%230e7490&labelStyle=lower)
+
+
+
+![Logo](https://cdn.phototourl.com/anon/2026-11-22-d5ae5af8-762d-403c-838f-cd8a129ea82a.gif)
